@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @aleenaelsaa
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning BCA in Christ university
-- 💞️ I’m looking to collaborate on 
 - 📫 You can reach me through email : aleenaelsabenoy@email.com
 
 
